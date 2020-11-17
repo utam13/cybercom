@@ -1,4 +1,5 @@
-Thanks for downloading this template!
+Edited for CyberCom Profil
+our freelancer group
 
 Template Name: Day
 Template URL: https://bootstrapmade.com/day-multipurpose-html-template-for-free/
